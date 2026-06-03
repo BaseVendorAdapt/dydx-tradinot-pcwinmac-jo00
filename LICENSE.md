@@ -1,4 +1,4 @@
-# 
+# Mis à jour dydx trading bot outils pour Mac OS | Ultime dydx trading bot outils pour PC Windows. Avec agriculture de rendement et notifications d'alerte — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
